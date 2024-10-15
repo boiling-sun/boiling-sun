@@ -1,4 +1,3 @@
-## Hi there 👋
 
   __________________________________
 | Oraculo Manual у Arte de Prudencia |
